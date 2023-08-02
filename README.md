@@ -1,6 +1,6 @@
 # Hi there 👋
 
-## Checkout my public profile
+## I am a Kroger Employee! Checkout my public profile below!
 
 [@mbround18](https://github.com/mbround18)
 
